@@ -10,9 +10,9 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on becoming a better web and mobile app developer.
 - 🌱 I’m currently learning Python
 - 👯 I’m looking to collaborate on for profit and passion projects that bring value, joy and hope to the world.
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
+- 🤔 I’m looking for help with connecting with fellow over 30 newbie women techies!
+- 💬 Ask me about what ever you want.
 - 📫 How to reach me: 
 - 😄 Pronouns: she/her 
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: so many fun facts where to start.
 
