@@ -16,3 +16,24 @@ Here are some ideas to get you started:
 - 😄 Pronouns: she/her 
 - ⚡ Fun fact: so many fun facts where to start.
 
+Yordanos Mathewos 
+yordanos@mathewos.net |  Unicornhire.me about.com 
+Experience
+Health: Nursing Assistant ,Phlebotomist, Nurse Tech, Licensed Nurse
+Hospitality: Front of the house to back of the house, Host, Sever, Bartender, Service Manager 
+Events | Arts : Event Planning Promotions Hosting Management, Actor, Model
+Eduction 
+CUNY TechWorks - Software Development Program
+University of Central Florida - Bachelor of Science in Psychology
+Orlando Tech - Nursing, Phlebotomy, EKG, Medical Lab Assisting 
+Certification
+Google Tech Support 
+IAA Certified Professional in Accessibility
+Professional Scrum Master
+AWS Certified Cloud Practitioner
+Full-Stack Web Development
+FRONT-END WEB DEVELOPMENT
+BACK-END WEB DEVELOPMENT
+MOBILE WEB DEVELOPMENT , IOS , Android
+DATABASES
+GIT GITHUB AND VERSION CONTROL
