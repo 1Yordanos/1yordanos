@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: so many fun facts where to start.
 
 Yordanos Mathewos 
-yordanos@mathewos.net |  Unicornhire.me about.com 
+yordanos@mathewos.net |  Unicornhire.me 
 Experience
 Health: Nursing Assistant ,Phlebotomist, Nurse Tech, Licensed Nurse
 Hospitality: Front of the house to back of the house, Host, Sever, Bartender, Service Manager 
